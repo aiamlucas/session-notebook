@@ -1,0 +1,4 @@
+The word coffee entered the English language in 1582 via the Dutch koffie, borrowed from the Ottoman Turkish kahve (قهوه), borrowed in turn from the Arabic qahwah (قَهْوَة).[4] Medieval Arab lexicographers traditionally held that the etymology of qahwah meant 'wine', given its distinctly dark color, and derived from the verb qahiya (قَهِيَ), 'to have no appetite'.[5] The word qahwah most likely meant 'the dark one', referring to the brew or the bean; qahwah is not the name of the bean, which are known in Arabic as bunn and in Cushitic languages as būn. Semitic languages had the root qhh, 'dark color', which became a natural designation for the beverage.[5]
+
+The terms coffee pot and coffee break originated in 1705 and 1952 respectively.[6] even though Arab etymologists connected with a word meaning "wine," but it is perhaps rather from the Kaffa region of Ethiopia 
+(https://en.wikipedia.org/wiki/Coffee)
